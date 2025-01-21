@@ -1,1 +1,1 @@
-# oh nee ik werk online
+# Seyyidhan zegt dat het makkelijk is met OpenAI
